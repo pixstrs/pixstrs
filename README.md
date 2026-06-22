@@ -1,4 +1,4 @@
-I give therapy for 100 dollar
+I give therapy for 100 dollars
 
 
 
