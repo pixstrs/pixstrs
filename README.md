@@ -1,7 +1,6 @@
 I give therapy for 100 dollars
 
+<img width="300" height="200" alt="Untitled17_20260703204558" src="https://github.com/user-attachments/assets/9600fce0-9a06-4fba-b166-62f878af09fd" />
 
 
-<img width="250" height="200" alt="IMG_6463" src="https://github.com/user-attachments/assets/edb826a7-dcc7-4e62-9a29-fcd21bf8240c" />
 
-credits to @/allentism
