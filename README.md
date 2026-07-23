@@ -8,7 +8,7 @@ you may call me vash/chaos, I am turning 18 in a few days and my mbti is etsp (w
 
 <img width="350" height="250" alt="IMG_7866" src="https://github.com/user-attachments/assets/7a07b92a-047f-44f2-a2b1-ed1103c0ecfc" />
 
-I'm also taken n i hope that you'll respect that by avoiding any type of flirting towards me or else it'll be a huge ewwie for me since I take my relationship with my partner seriously. Other than that, I keep my relationship private, any questions about my partner is a no no! (unless he wants to) anywayssss we've been dating for 2 years now awww 
+I'm also taken n i hope that you'll respect that by avoiding any type of flirting towards me or else it'll be a huge ewwie for me since I take my relationship with my partner seriously (sitting as duos is fine!). Other than that, I keep my relationship private, any questions about my partner is a no no! (unless he wants to) anywayssss we've been dating for 2 years now awww 
 
 <img width="736" height="579" alt="IMG_7880" src="https://github.com/user-attachments/assets/70e6db55-23c2-4c3d-884a-6e2d93abc747" />
 
