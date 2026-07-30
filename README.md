@@ -4,7 +4,7 @@ I give therapy for 100 dollars
 
 short self-introduction ig ig 
 
-you may call me vash/chaos, I am turning 18 in a few days and my mbti is etsp (which means that u can interact with me as much as you like except 4 times when i'm socially drained aka dniuf/dniuid on my pt skins) ! other than that, I am a huge yapper and i hope you can keep up with that! do tell me to slow down if you want. I also use any pronouns & I'm a genderfluid pansexual chud. 
+you may call me vash/chaos, I am 18 and my mbti is etsp (which means that u can interact with me as much as you like except 4 times when i'm socially drained aka dniuf/dniuid on my pt skins) ! other than that, I am a huge yapper and i hope you can keep up with that! do tell me to slow down if you want. I also use any pronouns & I'm a genderfluid pansexual chud. 
 
 <img width="350" height="250" alt="IMG_7866" src="https://github.com/user-attachments/assets/7a07b92a-047f-44f2-a2b1-ed1103c0ecfc" />
 
