@@ -1,4 +1,8 @@
-I give therapy for 100 dollars
+
+
+
+<span style="color: #1589F0;">This is blue text in GitHub README</span>
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31hw7leth7ypfiecn3fuqt6vu4iu&cover_image=true&theme=novatorem&show_offline=true&background_color=641616&interchange=true&profanity=false&hide_remaster=false&bar_color=9b4b4b&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31hw7leth7ypfiecn3fuqt6vu4iu&redirect=true)
